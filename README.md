@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @COMPLEX2211
-- 👀 I’m interested in Gam9ing and trying to code
+- 👀 I’m interested in Gaming and trying to code
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me Derekflynn1234@gmail.com
